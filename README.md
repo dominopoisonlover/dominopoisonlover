@@ -61,6 +61,9 @@ src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca
 <br> ‎　　　　　‎. ‎ꫂ᭪݁ 
 
 
+<br> 　　　　　　　　　　　　. 𝟭𝙭 𝙛𝙖𝙩 
+
+
 
 　　　　　　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca89c7d18a8ea6/f792019d-05d3-46f0-a125-59affb4284fc.jpeg" />
