@@ -28,7 +28,7 @@ src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca
 　 　　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec03dab6c2230288b93/2ef97b52-e195-41d4-a32d-25105e03f948.jpeg" />
 
-
+## I'm gay 🍋‍🟩
 
 <br> 　　　　　　　　　　　　　　　𝙉𝙊𝙏𝙀 . 𝙋𝙡𝙨 𝙙𝙤𝙣𝙩 𝙘𝙤𝙥𝙮 𝙢𝙮 𝙨𝙠𝙞𝙣 📌
 <br> 　　　　　　　　　　　　　　　　　　　𝘤+𝘩 𝘧𝘳𝘦𝘦𝘭𝘺 . 𝘸𝟤𝘪       
