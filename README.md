@@ -48,10 +48,10 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 
 <br> 　　　　　　　　　　　　.　‎ꫂ᭪݁
 
-<br> 　　　　　　　　　　　　　　　　　　.　𝘔𝘦𝘰𝘸𝘸 𝘹𝘪𝘢𝘰'𝘴 𝘬𝘪𝘵𝘵𝘺 ‎ꫂ᭪݁
+<br> 　　　　　　　　　　　　　　　　.　𝘔𝘦𝘰𝘸𝘸 𝘹𝘪𝘢𝘰'𝘴 𝘬𝘪𝘵𝘵𝘺 ‎ꫂ᭪݁
 
 
-<br> 　　　　　　　　　　　　　　　　　　　(A) @Sidor_09 on X .
+<br> 　　　　　　　　　　　　　　　　　(A) @Sidor_09 on X .
 
 　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca89c7d18a8ea6/HW5WMi9WgAAiH3y.jpg" />
