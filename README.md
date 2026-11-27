@@ -44,18 +44,21 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 
 
 
-<br> 　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌　　　🍋‍🟩🐇
+<br> 　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ .　　🍋‍🟩🐇
 
-<br> 　　　　　　　　　　　　　‎ꫂ᭪݁
+<br> 　　　　　　　　　　　　.　‎ꫂ᭪݁
 
-<br> 　　　　　　　　　　　　　　　　　　　‎ꫂ᭪݁
+<br> 　　　　　　　　　　　　　　　　　　.　‎ꫂ᭪݁
 
 　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca89c7d18a8ea6/HW5WMi9WgAAiH3y.jpg" />
 
 
 
-<br>　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ 🍋‍🟩🐇
+<br>　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ . 🍋‍🟩🐇
+
+
+<br> ‎　　　　　‎. ‎ꫂ᭪݁ 
 
 
 
