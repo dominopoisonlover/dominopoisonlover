@@ -7,9 +7,9 @@ src="https://github.com/dominopoisonlover/tsuw3ixaya/blob/fe55158aa073d36694b95f
 <img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec03dab6c2230288b93/d34a3b2a-0a31-4034-ab81-7c96882e27b3.jpeg" />
 　
-　
 
-<br> 　　　　　　　　　　𝘐'𝘮 𝘟𝘢𝘺𝘢 , 𝘪𝘮 𝘴𝘰 𝘨𝘭𝘢𝘥 𝘺𝘰𝘶 𝘷𝘪𝘴𝘪𝘵𝘦𝘥 𝘩𝘦𝘩𝘦
+<br> 　　　　　　　　　　　　　　𝘐'𝘮 𝘟𝘢𝘺𝘢 , 𝘪𝘮 𝘴𝘰 𝘨𝘭𝘢𝘥 𝘺𝘰𝘶 𝘷𝘪𝘴𝘪𝘵𝘦𝘥 𝘩𝘦𝘩𝘦⊹ ࣪ ˖ ໒꒱
+<br>　　　　𝘞𝘰𝘶𝘭𝘥 𝘺𝘰𝘶 𝘭𝘪𝘬𝘦 𝘵𝘰 𝘣𝘦 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥? 𝘪'𝘮 𝘯𝘰𝘵 𝘢 𝘨𝘰𝘰𝘥 𝘱𝘦𝘳𝘴𝘰𝘯 𝘣𝘶𝘵 𝘪'𝘭𝘭 𝘥𝘰 𝘮𝘺 𝘣𝘦𝘴𝘵 𝘵𝘰 𝘩𝘦𝘭𝘱 𝘺𝘰𝘶
 
   　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec03dab6c2230288b93/6d266a62-6d2e-4732-8247-c7cb67780720.jpeg" />
