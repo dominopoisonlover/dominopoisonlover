@@ -86,14 +86,18 @@ src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca
 
 
 <br> 　　　　　　　　　　　　　　　　　　　　. <3 
-<br>　　　　　　　　　　　　　　　　　　　　　　𝙓𝙞𝙖𝙤 : *𝙠𝙞𝙨𝙨 𝙃𝙚* 
-<br> 　　　　　　　　　　　　　(𝙄𝙨 𝙟𝙤𝙠𝙚 𝙢𝙮 𝙮𝙪𝙢𝙚𝙨𝙝𝙞𝙥 📍) 
+<br>　　　　　　　　　　　　　　　　　𝙓𝙞𝙖𝙤 : *𝙠𝙞𝙨𝙨 𝙃𝙚* 
+<br> 　　　　　　　　　　　　(𝙄𝙨 𝙟𝙤𝙠𝙚 𝙢𝙮 𝙮𝙪𝙢𝙚𝙨𝙝𝙞𝙥 📍) 
 
 <img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059dded5c05c66cdb211/IMG_d166d063-0b4e-442a-bd1c-632f68c298ed.gif" />
 
 <br> 　　　　　　　　　　　　　　　　　　　　　　　　　. ‎ꫂ᭪݁
 <br> 　　　　　　　　　　　　　　　　　　𝙛𝙖𝙩 𝙛𝙖𝙩 .
+
+
+<img width="731" height="583" alt="image" 
+src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059dded5c05c66cdb211/1x-forsaken.gif" />
 
 <!--
 **dominopoisonlover/dominopoisonlover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
