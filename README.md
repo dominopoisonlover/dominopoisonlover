@@ -84,10 +84,11 @@ src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca
 　　　　　　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca89c7d18a8ea6/f792019d-05d3-46f0-a125-59affb4284fc.jpeg" />
 
+<br> 　　　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ . 🍋‍🟩🐇
 
 <br> 　　　　　　　　　　　　　　　　　　　　. <3 
 <br>　　　　　　　　　　　　　　　　　𝙒𝙝𝙚𝙣 𝙓𝙞𝙖𝙤 𝙠𝙞𝙨𝙨 𝙃𝙚 
-<br> 　　　　　　　　　　　　　　　(𝙄𝙨 𝙟𝙤𝙠𝙚 𝙢𝙮 𝙮𝙪𝙢𝙚𝙨𝙝𝙞𝙥 📍) 
+<br> 　　　　　　　　　　　　　　　　(𝙄𝙨 𝙟𝙤𝙠𝙚 𝙢𝙮 𝙮𝙪𝙢𝙚𝙨𝙝𝙞𝙥 📍) 
 
 <img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059dded5c05c66cdb211/IMG_d166d063-0b4e-442a-bd1c-632f68c298ed.gif" />
@@ -95,6 +96,7 @@ src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059d
 <br> 　　　　　　　　　　　　　　　　　　　　　　　　　. ‎ꫂ᭪݁
 <br> 　　　　　　　　　　　　　　　　　　𝙛𝙖𝙩 𝙛𝙖𝙩 .
 
+<br> 　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ . 🍋‍🟩🐇
 
 <img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059dded5c05c66cdb211/1x-forsaken.gif" />
