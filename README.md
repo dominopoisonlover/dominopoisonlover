@@ -40,6 +40,27 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec03dab6c2230288b93/f1c8c38d-f470-4a53-b206-47e0208048cd.jpeg" />
 
+
+
+<img width="731" height="583" alt="image" 
+src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca89c7d18a8ea6/HW5WMi9WgAAiH3y.jpg" />
+
+
+
+
+<img width="731" height="583" alt="image" 
+src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca89c7d18a8ea6/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%811_20261127132124.png" />
+
+
+
+
+
+
+
+<img width="731" height="583" alt="image" 
+src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca89c7d18a8ea6/f792019d-05d3-46f0-a125-59affb4284fc.jpeg" />
+
+
 <!--
 **dominopoisonlover/dominopoisonlover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
