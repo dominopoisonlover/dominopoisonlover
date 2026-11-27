@@ -5,10 +5,10 @@
 src="https://github.com/dominopoisonlover/onlylove/blob/95f1d48a13e83145feea9d242e7d026ad9fbbfba/4f49c04d-1c7f-4226-a090-2a410f9a76b7.gif" />
 
 
-<br> 　　　　　　　　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ 🍋‍🟩
-<br> 　　　　　　　　　　　　　　　　　　　　　.`　𝘾𝙖𝙠𝙚𝙥𝙤𝙞𝙨𝙤𝙣 .
-<br> 　　　　　　　　　　　　　　　　　　　　　𝘺𝘶𝘮𝘦 𝘴𝘩𝘪𝘱 𝘸 𝟣𝘹𝟣𝘹𝟣𝘹𝟣 
-<br> 　　　　　　　　　　　　　　　　　　　　　　　　　🍰🍋‍🟩
+<br> 　　　　　　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ 🍋‍🟩
+<br> 　　　　　　　　　　　　　　　　　　　.`　𝘾𝙖𝙠𝙚𝙥𝙤𝙞𝙨𝙤𝙣 .
+<br> 　　　　　　　　　　　　　　　　　　　𝘺𝘶𝘮𝘦 𝘴𝘩𝘪𝘱 𝘸 𝟣𝘹𝟣𝘹𝟣𝘹𝟣 
+<br> 　　　　　　　　　　　　　　　　　　　　　　　🍰🍋‍🟩
 
 
 
