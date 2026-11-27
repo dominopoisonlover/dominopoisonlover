@@ -1,4 +1,14 @@
 ## 🐇 
+
+
+<img width="731" height="583" alt="image" 
+src="https://github.com/dominopoisonlover/onlylove/blob/95f1d48a13e83145feea9d242e7d026ad9fbbfba/4f49c04d-1c7f-4226-a090-2a410f9a76b7.gif" />
+
+
+
+
+
+
 <img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/tsuw3ixaya/blob/fe55158aa073d36694b95fb67608854c395c3c8f/k%20wtm.png" />
 <br> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　　　My⠀ata 🐇 
