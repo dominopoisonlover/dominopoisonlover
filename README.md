@@ -54,7 +54,7 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec03dab6c2230288b93/f1c8c38d-f470-4a53-b206-47e0208048cd.jpeg" />
 
 
-
+## 1x !!!
 
 
 <br> 　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ .　　🍋‍🟩🐇
@@ -83,6 +83,13 @@ src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca
 
 　　　　　　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca89c7d18a8ea6/f792019d-05d3-46f0-a125-59affb4284fc.jpeg" />
+
+
+<br> 　　　　　　　　　　　　　　　　　　　　. <3 
+<br>　　　　　　　　　　　　　　　　　　　　　　　　　　　𝙓𝙞𝙖𝙤 : *𝙠𝙞𝙨𝙨* 
+
+<img width="731" height="583" alt="image" 
+src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059dded5c05c66cdb211/IMG_d166d063-0b4e-442a-bd1c-632f68c298ed.gif" />
 
 
 <!--
