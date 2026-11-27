@@ -31,9 +31,13 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 
 
 　　　　　　　　　　　　
-　　　　　　　　　　　　　　　　　　𝘏𝘦𝘳/𝘏𝘪𝘮 
-　　　　　　　　　　　　　　　　　𝘉𝘪𝘳𝘵𝘩𝘥𝘢𝘺 𝟤𝟤-𝟢𝟫
-　　　　　　　　　　　　　　　　　　𝘚𝘱𝟨 𝘔𝘦 
+　　　　　　　　　　　　　　　　　　𝘏𝘦𝘳/𝘏𝘪𝘮 . 𝘉𝘪𝘳𝘵𝘩𝘥𝘢𝘺 𝟤𝟤-𝟢𝟫 . 𝘚𝘱𝟨 𝘔𝘦 
+                  
+            
+　　　　　　　　　　　　　　　　　
+
+
+
 
 　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec03dab6c2230288b93/f1c8c38d-f470-4a53-b206-47e0208048cd.jpeg" />
