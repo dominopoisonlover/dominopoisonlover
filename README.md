@@ -18,6 +18,8 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 <br> 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　𝘔𝘺 𝘧𝘢𝘷 𝘰𝘵𝘱
 <br>　　　　　　　　　　　𝘈𝘻𝘶𝘵𝘪𝘮𝘦 . 𝘗𝘪𝘻𝘻𝘢𝘵𝘪𝘮𝘦 . 𝘗𝘪𝘻𝘻𝘢𝘤𝘰𝘭𝘢 . 𝘍𝘳𝘰𝘻𝘦𝘯𝘣𝘶𝘨𝘦𝘳 . 𝟣𝘹𝘕𝘰𝘰𝘣 . 𝘍𝘳𝘰𝘻𝘦𝘯𝘧𝘭𝘰𝘸𝘦𝘳 . 𝘐𝘤𝘩𝘢𝘯𝘤𝘦 . 𝘈𝘯𝘺 𝘰𝘵𝘱(˶ᵔ ᵕ ᵔ˶) ‹𝟹
 <br> 　　　　　　　　　　　　　　　　　　　　　𝘐'𝘮 𝘢𝘭𝘸𝘢𝘺𝘴 𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘢𝘣𝘭𝘦 𝘸𝘪𝘵𝘩 𝘦𝘷𝘦𝘳𝘺𝘰𝘯𝘦'𝘴 𝘴𝘩𝘪𝘱
+<br> 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　𝘕𝘰𝘵𝘱 
+<br> 　　　　　　　　　　　　　　　　　　𝘋𝘰𝘶𝘣𝘭𝘦𝘧𝘦𝘥𝘰𝘳𝘢 . 𝟣𝘹𝘥𝘰𝘦 . 𝘱𝘰𝘪𝘴𝘰𝘯𝘣𝘶𝘨𝘦𝘳 . 𝟣𝘹𝘷𝘦𝘦 𝘢𝘯𝘥 𝘢𝘭𝘭 𝟣𝘹 
 
 　 　　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec03dab6c2230288b93/2ef97b52-e195-41d4-a32d-25105e03f948.jpeg" />
