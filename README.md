@@ -100,7 +100,14 @@ src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059d
 
 <br> 　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ . 🍋‍🟩🐇
 
+<details>
+<summary>▼ NOTE</summary>
 
+Đây là nội dung tui muốn gấp gọn.
+Dòng thứ hai ở đây.
+Dòng thứ ba ở đây.
+
+</details>
 <!--
 **dominopoisonlover/dominopoisonlover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
