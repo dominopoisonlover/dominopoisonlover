@@ -102,6 +102,7 @@ src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059d
 
 <br> 　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ . 🍋‍🟩🐇
 
+$\color{#FFF8EB}{\text{My ata}}$
 
 <!--
 **dominopoisonlover/dominopoisonlover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
