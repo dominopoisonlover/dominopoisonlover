@@ -41,13 +41,6 @@ src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca
 <br> 　　　　　　　　　　𝘋𝘰𝘶𝘣𝘭𝘦𝘧𝘦𝘥𝘰𝘳𝘢 . 𝟣𝘹𝘥𝘰𝘦 . 𝘱𝘰𝘪𝘴𝘰𝘯𝘣𝘶𝘨𝘦𝘳 . 𝟣𝘹𝘷𝘦𝘦 𝘢𝘯𝘥 𝘢𝘭𝘭 𝟣𝘹 
 
 
-　　　　　　　　　　　　　　　　　<summary>▼𝙁𝙖𝙣𝙙𝙤𝙢</summary>
-　　　　　　　　　　　　　　　　　　　　　　　𝘍𝘰𝘳𝘴𝘢𝘬𝘦𝘯
-　　　　　　　　　　　　　　　　　　　　　　　　𝘈𝘰𝘷
-
-</details>
-
-
 　 　　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec03dab6c2230288b93/2ef97b52-e195-41d4-a32d-25105e03f948.jpeg" />
 
@@ -59,6 +52,7 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 <br>　　　𝘐 𝘩𝘢𝘵𝘦 𝘪𝘵 𝘸𝘩𝘦𝘯 𝘺𝘰𝘶 𝘫𝘰𝘬𝘦 𝘢𝘳𝘰𝘶𝘯𝘥 𝘸𝘪𝘵𝘩 𝘮𝘦 𝘵𝘰𝘰 𝘮𝘶𝘤𝘩, 𝘢𝘯𝘥 𝘪 𝘥𝘰𝘯'𝘵 𝘭𝘪𝘬𝘦 𝘣𝘦𝘪𝘯𝘨 𝘥𝘦𝘤𝘦𝘪𝘷𝘦𝘥 𝘣𝘺 𝘱𝘦𝘰𝘱𝘭𝘦
 <br> 　　　　　　　　　　　　　　　　　　.·°՞(っ-ᯅ-ς)՞°·.
 
+　　　　　　　　　　 [𝘍𝘢𝘤𝘦𝘣𝘰𝘰𝘬𝘬](https://www.facebook.com/share/1E2E3RPTV9/)
                  
 　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec03dab6c2230288b93/f1c8c38d-f470-4a53-b206-47e0208048cd.jpeg" />
