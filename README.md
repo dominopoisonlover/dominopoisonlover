@@ -33,6 +33,8 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 <br> 　　　　　　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌. ‎ꫂ᭪݁ 
 
 
+　　<img src="https://github.com/dominopoisonlover/hmm/blob/a6e6b5bb1ac26e4cb327d1ce32bdaa9ae213f266/8d0b5c94-47ab-4053-a39f-2bd8f456aec5.jpeg" width="250">
+
 　　　　　　　　　　　　　　<img src="https://github.com/dominopoisonlover/hmm/blob/a6e6b5bb1ac26e4cb327d1ce32bdaa9ae213f266/5ecc7031-2710-4ff3-8f15-278ba53dce9a.jpeg" width="270">
 
 
