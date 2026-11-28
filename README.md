@@ -33,6 +33,9 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 <br> 　　　　　　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌. ‎ꫂ᭪݁ 
 
 
+　　　　　　　　　　　　　　<img src="https://github.com/dominopoisonlover/hmm/blob/a6e6b5bb1ac26e4cb327d1ce32bdaa9ae213f266/5ecc7031-2710-4ff3-8f15-278ba53dce9a.jpeg" width="270">
+
+
 ## . 
 
 
