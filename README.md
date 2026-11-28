@@ -16,7 +16,7 @@ src="https://github.com/dominopoisonlover/onlylove/blob/95f1d48a13e83145feea9d24
 
 <img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/tsuw3ixaya/blob/fe55158aa073d36694b95fb67608854c395c3c8f/k%20wtm.png" />
-<br> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　　　My⠀ata 🐇 
+<br> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　　　$\color{#FFF8EB}{\text{My}}$ata 🐇 
 <br> .⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<https://weixayaaa.atabook.org>
 <br>               　　　　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　　　﹌﹌﹌﹌﹌﹌﹌﹌ . ִֶָ🪽་
 <br> 　　　　　　　　　　　　　　　　⠀⠀　⠀𝘏𝘪 𝘮𝘺 𝘢𝘯𝘨𝘭𝘦  ‎ꫂ᭪݁
@@ -102,7 +102,7 @@ src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059d
 
 <br> 　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ . 🍋‍🟩🐇
 
-$\color{#D6F1F5}{\text{Hello world}}$
+
 <!--
 **dominopoisonlover/dominopoisonlover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
