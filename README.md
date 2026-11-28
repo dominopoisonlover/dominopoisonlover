@@ -27,10 +27,10 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 
 ## Lian iuu
 
-　　　　　　　<img src="https://github.com/dominopoisonlover/hmm/blob/a6e6b5bb1ac26e4cb327d1ce32bdaa9ae213f266/sparkles.gif" width="50">
+　　　　　　　　<img src="https://github.com/dominopoisonlover/hmm/blob/a6e6b5bb1ac26e4cb327d1ce32bdaa9ae213f266/sparkles.gif" width="150">
 　　　　　　　　　　　　　
               
-　　　　　　　  <img src="https://github.com/dominopoisonlover/meowmeow/blob/c344289a2de7084f4a90db64dffeb02f0181743d/orca-image--1613003188.jpeg.jpeg" width="250">
+　　　　　　　　　  <img src="https://github.com/dominopoisonlover/meowmeow/blob/c344289a2de7084f4a90db64dffeb02f0181743d/orca-image--1613003188.jpeg.jpeg" width="250">
 
 <br> 　　　　　　　　　𝘔𝘺 𝘵𝘪𝘨𝘦𝘳 𝘧𝘢𝘵𝘵 🐯 ☘️
 
