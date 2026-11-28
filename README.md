@@ -40,6 +40,16 @@ src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca
 <br> 　　　　　　　　　　　　　　　　　　　　　𝘕𝘰𝘵𝘱 
 <br> 　　　　　　　　　　𝘋𝘰𝘶𝘣𝘭𝘦𝘧𝘦𝘥𝘰𝘳𝘢 . 𝟣𝘹𝘥𝘰𝘦 . 𝘱𝘰𝘪𝘴𝘰𝘯𝘣𝘶𝘨𝘦𝘳 . 𝟣𝘹𝘷𝘦𝘦 𝘢𝘯𝘥 𝘢𝘭𝘭 𝟣𝘹 
 
+
+　　　　　　　　　　　　　　　　　<details>
+<summary>▼ NOTE</summary>
+　　　　　　𝙁𝙖𝙣𝙙𝙤𝙢
+  　　　　𝘍𝘰𝘳𝘴𝘢𝘬𝘦𝘯
+
+
+</details>
+
+
 　 　　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec03dab6c2230288b93/2ef97b52-e195-41d4-a32d-25105e03f948.jpeg" />
 
@@ -100,14 +110,7 @@ src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059d
 
 <br> 　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ . 🍋‍🟩🐇
 
-<details>
-<summary>▼ NOTE</summary>
 
-Đây là nội dung tui muốn gấp gọn.
-Dòng thứ hai ở đây.
-Dòng thứ ba ở đây.
-
-</details>
 <!--
 **dominopoisonlover/dominopoisonlover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
