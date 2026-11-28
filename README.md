@@ -98,9 +98,7 @@ src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059d
 
 <br> 　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ . 🍋‍🟩🐇
 
-<img width="731" height="583" alt="image" 
-src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059dded5c05c66cdb211/1x-forsaken.gif" />
-
+<img src="https://github.com/dominopoisonlover/meowmeow/blob/f82f2ab3b31ac39dcc4a059dded5c05c66cdb211/IMG_d166d063-0b4e-442a-bd1c-632f68c298ed.gif" width="150">
 <!--
 **dominopoisonlover/dominopoisonlover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
