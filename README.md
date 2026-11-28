@@ -41,11 +41,9 @@ src="https://github.com/dominopoisonlover/Chim/blob/d8a6fa41042450afa77608c0eaca
 <br> 　　　　　　　　　　𝘋𝘰𝘶𝘣𝘭𝘦𝘧𝘦𝘥𝘰𝘳𝘢 . 𝟣𝘹𝘥𝘰𝘦 . 𝘱𝘰𝘪𝘴𝘰𝘯𝘣𝘶𝘨𝘦𝘳 . 𝟣𝘹𝘷𝘦𝘦 𝘢𝘯𝘥 𝘢𝘭𝘭 𝟣𝘹 
 
 
-　　　　　　　　　　　　　　　　　<details>
-<summary>▼ NOTE</summary>
-　　　　　　𝙁𝙖𝙣𝙙𝙤𝙢
-  　　　　𝘍𝘰𝘳𝘴𝘢𝘬𝘦𝘯
-
+　　　　　　　　　　　　　　　　　<summary>▼𝙁𝙖𝙣𝙙𝙤𝙢</summary>
+　　　　　　　　　　　　　　　　　　　　　　　𝘍𝘰𝘳𝘴𝘢𝘬𝘦𝘯
+　　　　　　　　　　　　　　　　　　　　　　　　𝘈𝘰𝘷
 
 </details>
 
