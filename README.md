@@ -29,13 +29,14 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 
 　　　<img src="https://github.com/dominopoisonlover/hmm/blob/a6e6b5bb1ac26e4cb327d1ce32bdaa9ae213f266/Parrot.gif" width="178">
 
+<br> 　　　　　　　　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌ 🍰🐇
   　　　　　　　　　　　　<img src="https://github.com/dominopoisonlover/hmm/blob/a6e6b5bb1ac26e4cb327d1ce32bdaa9ae213f266/Parrot.gif" width="138">
 
 
-<br> 　　　　　　　　　　　　　　　　𝙇𝙤𝙫𝙚 𝙡𝙤𝙫𝙚 𝙢𝙮 𝙛𝙖𝙩 𝙩𝙞𝙜𝙚𝙧 🐅 
+<br> 　　　　　　　　　　　　　　　𝙇𝙤𝙫𝙚 𝙡𝙤𝙫𝙚 𝙢𝙮 𝙛𝙖𝙩 𝙩𝙞𝙜𝙚𝙧 🐅 
 
 
-<br> 　　　　　　　　　　　　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ 🍃 .
+<br> 　　　　　　　　　　　　　　　　　　　　　﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ 🍃 .
 　　　　　　　　　　　　　　　　　　　　　　　　　　<img src="https://github.com/dominopoisonlover/hmm/blob/a6e6b5bb1ac26e4cb327d1ce32bdaa9ae213f266/sparkles.gif" width="50
                           145">
                           
