@@ -52,7 +52,7 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 <br> 　　　　　　　　　　　　　　　　　　.·°՞(っ-ᯅ-ς)՞°·.
 
 
-　　　　　　　　　　　　　　　　　　　　　　.[𝘍𝘢𝘤𝘦𝘣𝘰𝘰𝘬𝘬](https://www.facebook.com/share/1HnvY28STG/)
+　　　　　　　　　　　　　　　　　　　.[𝘍𝘢𝘤𝘦𝘣𝘰𝘰𝘬𝘬](https://www.facebook.com/share/1HnvY28STG/)
                  
 　　　　　　　<img width="731" height="583" alt="image" 
 src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec03dab6c2230288b93/f1c8c38d-f470-4a53-b206-47e0208048cd.jpeg" />
