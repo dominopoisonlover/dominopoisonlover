@@ -39,7 +39,7 @@ src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec0
 
 　　<img src="https://github.com/dominopoisonlover/hmm/blob/a6e6b5bb1ac26e4cb327d1ce32bdaa9ae213f266/8d0b5c94-47ab-4053-a39f-2bd8f456aec5.jpeg" width="250">   
 
-  　　　　　　　　　　　　　　　　　　　　　　<img src="https://github.com/dominopoisonlover/hmm/blob/a6e6b5bb1ac26e4cb327d1ce32bdaa9ae213f266/%D0%A0%D1%8B%D0%B1%D0%BA%D0%B8%20%D0%B2%20%D0%BF%D1%80%D1%83%D0%B4%D1%83%20%D0%B3%D0%B8%D1%84_%20%D1%81%D0%BC%D0%BE%D1%82%D1%80%D0%B8%D1%82%D0%B5%20%D0%B8%20%D1%81%D0%BA%D0%B0%D1%87%D0%B8%D0%B2%D0%B0%D0%B9%D1%82%D0%B5%20%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD.gif" width="50">
+  　　　　　　　　　　　　　　　　　　　　　　<img src="https://github.com/dominopoisonlover/hmm/blob/a6e6b5bb1ac26e4cb327d1ce32bdaa9ae213f266/%D0%A0%D1%8B%D0%B1%D0%BA%D0%B8%20%D0%B2%20%D0%BF%D1%80%D1%83%D0%B4%D1%83%20%D0%B3%D0%B8%D1%84_%20%D1%81%D0%BC%D0%BE%D1%82%D1%80%D0%B8%D1%82%D0%B5%20%D0%B8%20%D1%81%D0%BA%D0%B0%D1%87%D0%B8%D0%B2%D0%B0%D0%B9%D1%82%D0%B5%20%D0%B8%D0%B7%D0%BE%D0%B1%D1%80%D0%B0%D0%B6%D0%B5%D0%BD.gif" width="200">
 
 　　　　　　　　　　　　　　<img src="https://github.com/dominopoisonlover/hmm/blob/a6e6b5bb1ac26e4cb327d1ce32bdaa9ae213f266/5ecc7031-2710-4ff3-8f15-278ba53dce9a.jpeg" width="270">
 
