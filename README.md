@@ -25,7 +25,7 @@ src="https://github.com/dominopoisonlover/tsuw3ixaya/blob/fe55158aa073d36694b95f
 <img width="731" height="583" alt="image"   
 src="https://github.com/dominopoisonlover/onlylove/blob/97b2cdfb989b9f228b393ec03dab6c2230288b93/d34a3b2a-0a31-4034-ab81-7c96882e27b3.jpeg" />
 
-$\color{#879567}{\text{𝘔𝘺 𝘵𝘪𝘨𝘦𝘳 𝘧𝘢𝘵𝘵}}$
+　　　　　　　　　　　　　　　　　　　　　　　　　$\color{#879567}{\text{𝘔𝘺 𝘵𝘪𝘨𝘦𝘳 𝘧𝘢𝘵𝘵}}$
 　　　　　　　　　　　
 　
               <img src="https://github.com/dominopoisonlover/meowmeow/blob/c344289a2de7084f4a90db64dffeb02f0181743d/orca-image--1613003188.jpeg.jpeg" width="250">
